@@ -9,9 +9,9 @@
 
 在此附上我可爱的弟弟妹妹照片✌
 
-![img](https://img-community.csdnimg.cn/images/383d97d12fdb4a1ab8bf6fa20fc025aa.JPG "#left")
+![img](https://img-community.csdnimg.cn/images/5021bd7e2a324fdbb20b72deacc56a6f.JPG)
 
-![img](https://img-community.csdnimg.cn/images/ce40a3663435458d9a1286017be6393e.JPG "#left")
+![img](https://img-community.csdnimg.cn/images/ac44caee2bd14a6b9ec5ba94afd6af42.JPG)
 
 ## 兴趣爱好
 最大的爱好是救助流浪动物，曾组织面向社会的救助活动（或许报志愿选错了专业orz
