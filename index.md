@@ -13,7 +13,6 @@
 
 ![img](https://img-community.csdnimg.cn/images/ac44caee2bd14a6b9ec5ba94afd6af42.JPG "#left")
 
-![image](C:\Users\28954\Desktop\IMG_4089(20210615-160844).JPG)
 
 ## 兴趣爱好
 最大的爱好是救助流浪动物，曾组织面向社会的救助活动（或许报志愿选错了专业orz
