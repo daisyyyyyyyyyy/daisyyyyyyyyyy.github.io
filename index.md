@@ -7,12 +7,6 @@
 
 最大爱好摸鱼撸猫~~看帅哥~~
 
-在此附上我可爱的弟弟妹妹照片✌
-
-![img](https://img-community.csdnimg.cn/images/5021bd7e2a324fdbb20b72deacc56a6f.JPG "#left")
-
-![img](https://img-community.csdnimg.cn/images/ac44caee2bd14a6b9ec5ba94afd6af42.JPG "#left")
-
 
 ## 兴趣爱好
 最大的爱好是救助流浪动物，曾组织面向社会的救助活动（或许报志愿选错了专业orz
