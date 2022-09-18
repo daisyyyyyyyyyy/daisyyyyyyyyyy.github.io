@@ -7,7 +7,7 @@
 
 最大爱好摸鱼撸猫~~看帅哥~~
 
-
+![img](https://raw.githubusercontent.com/daisyyyyyyyyyy/daisyyyyyyyyyy.github.io/main/img/kele.png)
 ## 兴趣爱好
 最大的爱好是救助流浪动物，曾组织面向社会的救助活动（或许报志愿选错了专业orz
 
